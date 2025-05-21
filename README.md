@@ -1,4 +1,5 @@
 ## Welcome
+![pony-town-Rindo Haitani (TokRev)-sit-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/db0ab7e2-2139-45dd-ab1e-a796063ef311)
 
 <!--
 **hyacinthsmemento/hyacinthsmemento** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
