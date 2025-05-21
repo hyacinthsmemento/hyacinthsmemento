@@ -2,6 +2,7 @@
 ![pony-town-Rindo Haitani (TokRev)-sit-blinking-padded-ponyplush-4x](https://github.com/user-attachments/assets/db0ab7e2-2139-45dd-ab1e-a796063ef311)
 I go by Eli (He/Him) and you can most often find me in my Tokyo Revengers ponies.
 
-Feel free to sit with me but ask if you want to cuddle
+Feel free to sit with me but ask if you want to cuddle/want my socials.
 
+If you see "Semi AFK" or "AFK" in my pony name, you can get my attention by booping me a ton (I have a big monitor so I might not notice whispers or messages right away if I'm not looking at my screen)
 
