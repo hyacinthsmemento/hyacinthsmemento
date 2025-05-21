@@ -6,3 +6,6 @@ Feel free to sit with me but ask if you want to cuddle/want my socials.
 
 If you see "Semi AFK" or "AFK" in my pony name, you can get my attention by booping me a ton (I have a big monitor so I might not notice whispers or messages right away if I'm not looking at my screen)
 
+My Pony List: Akane, Hanma (Tenjiku), Izana, Kazutora (Valhalla), Draken (casual wear), Kisaki (Tenjiku), Kokonoi (Black Dragon, Tenjiku, Bonten), Ran (Tenjiku, Bonten), Rindo (Tenjiku, Bonten), Sanzu (Toman, Bonten), Seishu (Black Dragon), Wakasa (Brahman).
+
+Ask if you want me to swap to anyone for photos.
